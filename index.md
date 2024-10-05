@@ -1,4 +1,4 @@
-# Henry Froland
+# Henry Froland's Personal Site
 
 ## 🚧 Under Construction 🚧
 
